@@ -1,3 +1,3 @@
-Jurij Vega
+Janez Janša
 Josip Plemelj
 Jožef Štefan
