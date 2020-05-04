@@ -1,3 +1,3 @@
-Jurij Vega
+Borut Pahor
 Josip Plemelj
 Jožef Štefan
